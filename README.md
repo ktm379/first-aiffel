@@ -10,7 +10,7 @@
 먼저, 저커버그가 자신의 Facebook 프로필(https://www.facebook.com/zuck)에 업로드한 동영상으로 자비스를 만나 볼까요?
 
 <br>
-- 동영상<br>
+- 동영상
 <br>
 
 
